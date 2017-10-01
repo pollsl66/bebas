@@ -1,0 +1,2 @@
+# bebas
+terseah saya bang
